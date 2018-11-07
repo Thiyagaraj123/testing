@@ -7,3 +7,6 @@ m, dm ,sm, v,fm
 v vw
 ww
 w
+ln3wrv
+vrw3pnr3
+rr3w
