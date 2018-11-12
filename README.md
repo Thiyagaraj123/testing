@@ -20,3 +20,13 @@ evepe
 nve
 vnnev
 e
+k jsk
+  
+     w
+      ljnlnwncw
+      ecwe
+      ecwc
+      wcwe
+      eewcpcweec
+      ewwncwencw'
+      
