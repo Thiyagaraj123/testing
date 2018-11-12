@@ -35,4 +35,7 @@ k jsk
       wcwe
       eewcpcweec
       ewwncwencw'
-      
+       wewmv wwjkvjw kjwvjkw
+       wvnww
+       k[ww
+       www;v
